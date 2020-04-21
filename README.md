@@ -1,0 +1,2 @@
+# 18passosparafaturarcomgoogleads
+GitHub Pages
